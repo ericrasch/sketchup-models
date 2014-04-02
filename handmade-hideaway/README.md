@@ -1,6 +1,6 @@
 # Handmade Hideaway
 **URL:** http://www.thehandmadehome.net/2012/06/a-handmade-hideaway/
-![screenshot 2014-04-01 23:34](http://monosnap.com/image/MURjH8duCyGf6CtgBJYikL6ViZ0UBH.png)
+![screenshot 2014-04-01 23:34](http://monosnap.com/image/PqocdzCb6orOzvspPTPBBlwDuYeXQn.png)
 
 ***
 
