@@ -1,4 +1,7 @@
 # Handmade Hideaway
+
+Here are my pics of the project in its various states: https://www.flickr.com/photos/rasch/sets/72157654051963379
+
 **URL:** http://www.thehandmadehome.net/2012/06/a-handmade-hideaway/
 ![screenshot 2014-04-01 23:34](http://monosnap.com/image/PqocdzCb6orOzvspPTPBBlwDuYeXQn.png)
 
